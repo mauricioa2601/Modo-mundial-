@@ -1,2 +1,0 @@
-# Modo-mundial-
-proyecto 
